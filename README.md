@@ -3,8 +3,6 @@
 
 ## Basic Info
 
-🏳️‍🌈
-
 He/They
 
 
